@@ -1,6 +1,6 @@
 # fight-kbigll-fraud
 
-如果你是kbigll.com, kbigl.com, wockmarket, austkforex.com,gtx-fx.com,advanmarkets的网络诈骗受害者，让我们一起联合报案
+如果你是kbigll.com, kbigl.com, wockmarket, austkforex.com,gtx-fx.com,advanmarkets的网络诈骗受害者，让我们一起联合报案。请联系我网易邮箱funwalt@163.com或者gmail邮箱wilsonwu515@gmail.com
 
 
 我是居住在加拿大多倫多的Wilson Wu， 在今年遇到了一起來自（kbigll.com）的網絡電信詐騙案件。在這個案件中我的損失是$200,000加元，換算成港幣大約是130萬港幣。這個經濟損失是我多年以來的積蓄。
